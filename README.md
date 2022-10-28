@@ -1,2 +1,2 @@
 # About-Me
-Some things about good old
+Some things about good old Bimey
