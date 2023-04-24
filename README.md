@@ -3,7 +3,7 @@
 
 👋Hi! I'm @Bimey👋
 
-😃I'm new to GitHub😃
+😃I've been using Github for a few years😃
 
 🎮I love to play games🎮
 
